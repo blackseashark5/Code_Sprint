@@ -1,4 +1,4 @@
-# **EcoBin: Revolutionizing Waste Management 🌍**
+# **EcoBin: Revolutionizing Waste Management 🌍 Please Copy Paste The Link In your browser dont try to directly access from it here Thanks.**
 
 🌐 **Website**: [https://lustrous-chebakia-5113ee.netlify.app/#](#)  
 📱 **Download the App**: [https://drive.google.com/file/d/1DPD6GTMg2HNZhj9sncPQhY-gclctrLyj/view?usp=drivesdk](#) | [iOS](#)  
